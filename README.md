@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **chamin.njay@gmail.com**
 
-- 📄 Know about my experiences [chaminjayasooriya.xyz](https://chaminjayasooriya.xyz/)
+- 📄 Know about my experiences [chaminjayasooriya.com](https://chaminjayasooriya.com/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
